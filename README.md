@@ -1,1 +1,1 @@
-# M-I-D-T-T-E-R-M
+# M-I-D-T-E-R-M
